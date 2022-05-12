@@ -1,0 +1,5 @@
+- 👋 nome; @emillyvitoria1
+- 👀 sou do parana 
+- 🌱 tenho 15 anos 
+- 💞️ Nunca deixe que o medo sufoque os seus sonhos...
+- 
